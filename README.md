@@ -231,4 +231,4 @@ Back 4 Blood is offered as a complete free version with all features and updates
 Join the fight against the infected and download Back 4 Blood for an unforgettable cooperative gaming experience today!
 
 ---
-**Last updated:** 2026-09-23 23:32:56 UTC
+**Last updated:** 2026-09-24 04:22:42 UTC
